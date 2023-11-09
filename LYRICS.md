@@ -21,6 +21,18 @@ J'ai pas de conseil à donner, mais si tu veux pas qu'il glisse
 Regarde-le, quand il parle, écoute-le!  
 Le laisse pas chercher ailleurs l'amour qu'il devrait y avoir dans tes yeux  
 
+Laisse pas traîner ton fils  
+Si tu ne veux pas qu'il glisse  
+Qu'il te ramène du vice  
+Laisse pas traîner ton fils  
+Si tu veux pas qu'il glisse  
+
+
+Mais laisse pas traîner ton fils  
+Si tu ne veux pas qu'il glisse  
+Qu'il te ramène du vice  
+Laisse pas traîner ton fils  
+Si tu veux pas qu'il glisse  
 
 Que voulais-tu que ton fils apprenne dans la rue?  
 Quelles vertus croyais-tu qu'on y enseigne?  
@@ -40,4 +52,21 @@ D'esquives, des "shta-pow!" de putains de stonba
 Laisse pas traîner ton fils  
 Si tu veux pas qu'il glisse  
 Qu'il te ramène du vice  
+
+
+Non laisse pas traîner ton fils  
+Laisse pas traîner ton fils  
+Si tu ne veux pas qu'il glisse  
+Qu'il te ramène du vice  
+Laisse pas traîner ton fils  
+Si tu veux pas qu'il glisse  
+
+
+Laisse pas traîner ton fils  
+Si tu ne veux pas qu'il glisse  
+Qu'il te ramène duvice  
+Laisse pas traîner ton fils  
+Si tu veux pas qu'il glisse  
+
+
 
